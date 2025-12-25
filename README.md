@@ -1,0 +1,1 @@
+# Smartphone.Motorola.G-Pure
